@@ -25,7 +25,7 @@ Unlike traditional fencing or harmful repellent methods, GREEN-GUARDIANS activat
 
 ## 👥 Team Members
 
-- **Vinda Krishna**  
+- **Vrinda Krishna**  
 - **Krithika**
 
 ---
