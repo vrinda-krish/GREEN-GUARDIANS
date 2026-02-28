@@ -1,4 +1,4 @@
-```markdown
+
 # 🌿 GREEN-GUARDIANS  
 ## AI Smart Animal Repellent System
 
